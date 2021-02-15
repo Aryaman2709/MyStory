@@ -1,1 +1,1 @@
-During the Autumn season, when there were leaves all over the place , people called for the leafblower to help them clear the leaves.
+During the Autumn season, when there were leaves all over the place , people called for the leafblower to help them clear the leaves. Now take up the role of the Leaf Blower Man and help the city clean up the leaves.
