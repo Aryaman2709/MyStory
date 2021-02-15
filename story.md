@@ -1,0 +1,1 @@
+During the Autumn season, when there were leaves all over the place , people called for the leafblower to help them clear the leaves.
